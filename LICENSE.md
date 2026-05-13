@@ -1,4 +1,4 @@
-
+Get ahead in forsaken with top Scripts for forsaken, featuring auto-farm and no cooldown. Download now to dominate every match with ease and confidence, thanks to its advanced and
 
 
 
